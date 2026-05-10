@@ -3,7 +3,7 @@
 <p align="center">
 eden　or　ׅjordyn　𓐩</br>
 16　　they　╱　she</br>
-૮꒰ྀི　ms yuzuki yukari yume + oshiㅤ꒱ྀིა</br>
+ms yuzuki yukari yume (˶ ˘ ³˘)ˆᵕ ˆ˶)</br>
 </p>
 <p align="center"> ♡ main interests are and have always been vocal synths and musipros such as bandori, love live and im@s! i like a million other things though </p>
 <p align="center"> ♡ **always** iwc please... i am a very anxious person (╥ᴗ╥) </p>
