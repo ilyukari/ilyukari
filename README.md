@@ -8,4 +8,4 @@ ms yuzuki yukari yume of 2+ years (˶ ˘ ³˘)ˆᵕ ˆ˶)</br>
 </p>
 <p align="center"> • main interests are vocal synths and musipros such as bandori, love live and im@s! i like a million other things though. i love every piece of media with cute girls </p>
 <p align="center"> • always iwc please... i am a very anxious person and have a lot of difficulty interacting with people (╥ᴗ╥) </p>
-<p align="center"> • -14/+19 + tadc, tfc & helluvaverse fans on very thin ice. basic dni.</p>
+<p align="center"> • tadc, tfc, hoyoverse & helluvaverse fans on very thin ice. -14/+19 as well. basic dni.</p>
