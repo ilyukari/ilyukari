@@ -2,7 +2,7 @@
 ![yuzuki yukari](https://www.vocaloidnews.net/wp-content/uploads/2016/11/boss_character_1_1.png)</br>
 <p align="center">
 eden　or　ׅjordyn　𓐩</br>
-˳ᴗ ᴗ)　　they　╱　sheㅤㅤᚐ</br>
+they　╱　she</br>
 ૮꒰ྀི　ms yuzuki yukari yume + oshiㅤ꒱ྀིა</br>
 </p>
-<p> i ♡ vocal synths, love live, bandori, im@s, d4dj, pripara, gorillaz, etc </p>
+<p align="center"> ♡ main interests atm are vocal synths, bandori, love live and brawl stars 🐰 i like a million other things though</p>
