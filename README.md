@@ -10,4 +10,4 @@ ms yuzuki yukari yume of 2+ years (˶ ˘ ³˘)ˆᵕ ˆ˶)</br>
 <p align="center"> • always iwc please... i am a very anxious person and have a lot of difficulty interacting with people (╥ᴗ╥) </p>
 <p align="center"> • tadc, tfc, hoyoverse & helluvaverse fans on very thin ice. -14/+19 as well. basic dni.ˆ˶)</br></p>
 <p align="center">look at my vocaloid album topsters chart. I LOVE MY VOCASLOPˆ˶)</br></p>
-![yuzuki yukari](https://files.catbox.moe/opjrkg.png)</br>
+![topsters album chart with 110 vocaloid albums](https://files.catbox.moe/opjrkg.png)
