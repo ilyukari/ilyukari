@@ -1,4 +1,4 @@
-![hanayo and kotori from love live!!!]([https://myoctocat.com/assets/images/base-octocat.svg](https://imgur.com/XVkP4kU))
+![hanayo and kotori from love live!!!](https://i.imgur.com/XVkP4kU.gif)
 
 <!--
 **ilyukari/ilyukari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
