@@ -8,6 +8,6 @@ ms yuzuki yukari yume of 2+ years (˶ ˘ ³˘)ˆᵕ ˆ˶)</br>
 </p>
 <p align="center"> • main interests are vocal synths and musipros such as bandori, love live and im@s! i like a million other things though. </p>
 <p align="center"> • always iwc please... i am a very anxious person and have a lot of difficulty interacting with people (╥ᴗ╥) </p>
-<p align="center"> • tadc, tfc, hoyoverse & helluvaverse fans on very thin ice. -14/+19 as well. basic dni.ˆ˶)</br></p>
-<p align="center">look at my vocaloid album topsters chart. I LOVE MY VOCASLOPˆ˶)</br></p>
-![topsters album chart with 110 vocaloid albums](https://files.catbox.moe/opjrkg.png)
+<p align="center"> • tadc, tfc, hoyoverse & helluvaverse fans on very thin ice. -14/+19 as well. basic dni.</br></p>
+<p align="center">look at my [vocaloid album topsters chart.](https://files.catbox.moe/opjrkg.png) I LOVE MY SLOP</br></p>
+
