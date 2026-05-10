@@ -1,4 +1,4 @@
-![Views Counter](https://views-counter.vercel.app/badge?pageId=ilyukari&leftColor=494254&rightColor=ada1c7&type=total&label=visitors%20%E1%B2%98%F0%90%91%BC&style=lower)
+![Views Counter](https://views-counter.vercel.app/badge?pageId=ilyukari&leftColor=494254&rightColor=ada1c7&type=total&label=visitors%20%E1%B2%98%F0%90%91%BC&style=lower)</br>
 ![yuzuki yukari](https://files.catbox.moe/7bm4qg.png)</br>
 <p align="center">
 eden　or　ׅjordyn　𓐩</br>
