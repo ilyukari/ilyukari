@@ -1,4 +1,4 @@
-![Views Counter](https://views-counter.vercel.app/badge?pageId=ilyukari&leftColor=494254&rightColor=ada1c7&type=total&label=visitors%20%E1%B2%98%F0%90%91%BC&style=lower)</br>
+![![eden (⁠｡ > ⁠ω < ⁠｡⁠) profile views](https://u8views.com/api/v1/github/profiles/208399510/views/day-week-month-total-count.svg)](https://u8views.com/github/ilyukari)
 ![yuzuki yukari](https://files.catbox.moe/2qfljq.png)</br>
 <p align="center">
 eden　or　ׅjordyn　𓐩</br>
