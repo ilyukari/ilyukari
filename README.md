@@ -1,6 +1,6 @@
 ![yuzuki yukari](https://files.catbox.moe/2qfljq.png)</br>
 <p align="center">
-eden　or　ׅjordyn　𓐩</br>
+eden　or　ׅnoa　𓐩</br>
 16　　they　╱　she</br>
 girlthing ace lesbian</br>
 ms yuzuki yukari yume of 2+ years (˶ ˘ ³˘)ˆᵕ ˆ˶)</br>
