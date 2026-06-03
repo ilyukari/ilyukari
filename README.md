@@ -1,4 +1,4 @@
-![yuzuki yukari](https://files.catbox.moe/2qfljq.png)</br>
+![shinji and kaworu saying hello](https://files.catbox.moe/ce3yfq.gif)</br>
 <p align="center">
 eden　or　ׅsofi　𓐩</br>
 16　　they　╱　she</br>
