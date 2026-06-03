@@ -1,4 +1,4 @@
-![kaworu and shinji. aww so cute!](https://files.catbox.moe/dqen73.png)</br>
+![kaworu and shinji. aww so cute!](https://files.catbox.moe/zainbn.png)</br>
 <p align="center">
 eden　or　ׅsofi　𓐩</br>
 16　　they　╱　she</br>
