@@ -2,7 +2,7 @@
 <p align="center">
 eden　or　ׅsofi　𓐩</br>
 16　　they　╱　he ╱ she </br>
-genderqueer aroacespec lesbian</br>
+genderfaer aroacespec lesbian</br>
 yuzuki yukari kamioshi 🐰</br>
 </p>
 <p align="center">main interests rn are vocal synths, musipros (bandori, love live and im@s, and many others), and evangelion. i like a million other things though!! </p>
