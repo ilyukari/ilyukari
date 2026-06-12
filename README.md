@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="460" height="300" src="(https://files.catbox.moe/52jyjq.png)">
+  <img src="(https://files.catbox.moe/52jyjq.png)">
 </p>
 <p align="center">
 eden　or　ׅsofi　𓐩</br>
