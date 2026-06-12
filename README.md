@@ -1,6 +1,4 @@
-<p align="center">
-  <img src="(https://files.catbox.moe/52jyjq.png)">
-</p>
+
 <p align="center">
 eden　or　ׅsofi　𓐩</br>
 16　　they　╱　he　╱ she </br>
