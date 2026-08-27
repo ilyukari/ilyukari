@@ -1,7 +1,7 @@
 
 <p align="center">
 eden　or　ׅjordyn　𓐩</br>
-16　　he/they </br>
+16　　he / they </br>
 genderqueer lesbian</br>
 huge yuzuki yukari and kawoshin fan🐰</br>
 </p>
